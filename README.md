@@ -227,4 +227,4 @@ For issues or questions:
 
 ---
 
-Made with ❤️ for businesses that care about customer feedback
+
